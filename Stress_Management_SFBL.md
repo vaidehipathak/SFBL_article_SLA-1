@@ -1,6 +1,6 @@
 # Stress Management in Balancing Academics and Personal Life
 
-In today’s fast-paced world, students often find themselves juggling multiple responsibilities simultaneously—academic deadlines, personal commitments, extracurricular activities, and social interactions. While striving for success, it is easy to feel overwhelmed, stressed, or even burnt out. The ability to manage stress effectively is a critical life skill that not only improves academic performance but also enhances overall well-being and personal growth.
+In today’s fast-paced world, students often find themselves juggling multiple responsibilities simultaneously: academic deadlines, personal commitments, extracurricular activities, and social interactions. While striving for success, it is easy to feel overwhelmed, stressed, or even burnt out. The ability to manage stress effectively is a critical life skill that not only improves academic performance but also enhances overall well-being and personal growth.
 
 ## Understanding Stress in Academic Life
 
